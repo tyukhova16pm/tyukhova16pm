@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tyukhova16pm
+- 👀 I’m interested in QA
+- 📫 https://t.me/tyukhova
